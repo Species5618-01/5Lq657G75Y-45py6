@@ -1,6 +1,6 @@
 # 5Lq657G75Y-45py6
 
-这里提供TXT下载，在线阅读请至https://www.esjzone.cc/detail/1635401834.html
+这里提供TXT下载，在线阅读请至https://www.esjzone.net/detail/1635401834.html
 
 本文已完结，转载请遵循CC BY-NC-SA 4.0协议
 
