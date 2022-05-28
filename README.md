@@ -8,4 +8,4 @@
 
 警告：转载协议可能随时变为不允许转载，甚至本页面也有可能被删除，因为后期计划包括了向《科幻世界》投稿。
 
-（备用下载链接：https://share.weiyun.com/CAPYvsZg 密码：5tsx28）
+（备用下载链接：https://share.weiyun.com/0uzRLUIB 密码：eyfxp8）
